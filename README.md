@@ -1,5 +1,10 @@
+# <p align="center"> ♡
 # <p align="center"> CEO of FREYA X LEBKUCHEN
 <p align="center"> <img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/d4180463-b0db-464b-81f9-01a6adec60cd" /> art by lotte / dahli for me ><
+
+# <p align="center"> ♡
+# <p align="center"> I NEED TO MAKE EVERYTHING ABOUT FREBKUCHEN THIS INSTANT
+<p align="center"> <img width="1698" height="336" alt="Image" src="https://github.com/user-attachments/assets/22b6e5aa-a470-487f-8019-2fe88618f9a7" /> squished little lovebirds
 
 # <p align="center"> ♡
 
