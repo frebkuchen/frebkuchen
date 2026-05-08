@@ -1,6 +1,6 @@
 # <p align="center"> ♡
 # <p align="center"> CEO of FREYA X LEBKUCHEN
-<p align="center"> <img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/d4180463-b0db-464b-81f9-01a6adec60cd" /> art by lotte / dahli for me ><
+<p align="center"> <img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/d4180463-b0db-464b-81f9-01a6adec60cd" /> art by lotte / dahli for me >< ! fanfic is Diaphanous by A_tZ822 on AO3 !
 
 # <p align="center"> ♡
 # <p align="center"> I NEED TO MAKE EVERYTHING ABOUT FREBKUCHEN THIS INSTANT
