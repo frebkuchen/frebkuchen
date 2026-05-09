@@ -26,7 +26,7 @@
 
 # <p align="center"> FANDOMS TO INTERACT
 ### <p align="center"> AstralShift please interact! I'm currently really into Pocket Mirror, Little Goody Two shoes, and a little bit of Hell Maiden! So please don't hesitate on talking to me if you love those ⠀♡
-#### <p align="center"> The Walking Dead, Mad Father, Ib, Limbus Company, FNaF, PJSK, Alice: Madness Returns, DDLC, BATIM, Illusion Carnival, Mr. Hopp's Playtime, Little Nightmares, Revue Starlight, and lot's more just ask me stuffs lol. Might forget stuffs or just not that into them because I can't really focus on more than 1-2 or 3 interests if lucky at the same time
+#### <p align="center"> The Walking Dead, Mad Father, Ib, Limbus Company, FNaF, PJSK, Alice: Madness Returns, DDLC, BATIM, Illusion Carnival, Mr. Hopp's Playtime, Little Nightmares, Revue Starlight, and lots more just ask me stuffs lol. Might forget stuffs or just not that into them because I can't really focus on more than 1-2 or 3 interests if lucky at the same time
 ##### <p align="center"> Enstars yes interact with me but please do know I know little to nothing about enstars! I'm only active around enstarries because it's my sister's special interest! I'm sure the enstarries I'm mostly active with know about Dahli! That's my sister! You might see me as ioyams (mayoi pony) for enstars area!
 # <p align="center"> ♡
 <p align="center"> <img width="1437" height="636" alt="Image" src="https://github.com/user-attachments/assets/9253d800-1a99-43f4-8c15-472b8a98883b" /> my bebe
