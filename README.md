@@ -20,7 +20,7 @@
 
 # <p align="center"> ♡
 ### <p align="center"> I'm a nonsharing [Lebkuchen (Little Goody Two Shoes)](https://pocketmirror.fandom.com/wiki/Lebkuchen) & [Dulcinea (Limbus Company)](https://limbuscompany.wiki.gg/wiki/Dulcinea) yumeshipper ! I also yumeship with [Freya (Little Goody Two shoes)](https://pocketmirror.fandom.com/wiki/Freya) but I'm more of selective sharing with her ⠀♡⠀ Doubles will be blocked, I'd rather not interact with fans that would thirst over them.
-### <p align="center"> Please check [strawpage](https://harpenjel.straw.page/) before interacting further.
+### <p align="center"> Please check [strawpage](https://frebkuchen.straw.page/) before interacting further.
 # <p align="center"> ♡
 <p align="center"> <img width="587" height="235" alt="image" src="https://github.com/user-attachments/assets/e91b78dd-0978-48b5-8ee6-4dbd4d996428" /> me and who ahh
 
